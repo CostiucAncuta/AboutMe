@@ -18,17 +18,17 @@ I like doing funny things and having fun while doing them. Oh, and I scream for 
 
 ### Most Like in the Universe
 
-1. Backpack traveling 🎒
-2. Food 🍖
-3. Wine 🍷
+1. My family 👪
+2. Backpack traveling
+3. good food and good wine
 
 ### Objective to be achieved
 
-> 1.Be a developer.
+> 1. Be a developer.
 
 > 2. Be a good developer.
 
-> 3.Be a good developer with a great mindset.
+> 3. Be a good developer with a great mindset.
 
 ### My fears:
 
@@ -38,10 +38,14 @@ I like doing funny things and having fun while doing them. Oh, and I scream for 
 
 ### Three things I look forward to
 
--1. Having a house in Greece 2. Sleep 3. Summer weather ☀️
+1. Become an exceptional web developer
+2. Be a multimilionare
+3. Sleep & Summer weather ☀️🍹
 
 ### Three things I value the most in working as a team
 
-> I enjoy working in a team more than alone because of the speed and diversity of ideas that can be generated, as well as communication and reliability.
+> Fair play, respect, and commitment are top 3 things I value the most in a team.
 
-![alt text](image.png)
+### I find cat gifs super cute and funny. Currently, this is my fav.
+
+![alt text](image-2.png)
