@@ -48,4 +48,4 @@ I like doing funny things and having fun while doing them. Oh, and I like ice cr
 
 ### I find cat gifs super cute and funny. Currently, this is my fav.
 
-![alt text](image-2.png)
+![alt text](image-2.gif)
