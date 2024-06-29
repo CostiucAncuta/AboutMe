@@ -6,7 +6,7 @@
 
 I am a big kid 🧒 who has a child (a daughter) who has a child (🐈).
 
-I like doing funny things and having fun while doing them. Oh, and I scream for ice cream 🍨!
+I like doing funny things and having fun while doing them. Oh, and I like ice cream 🍨!
 
 ### Skills
 
